@@ -1,2 +1,2 @@
 # prework-ios
-[The gif of the app](https://gfycat.com/madhugefulmar.gif)
+[The GIF of the app](https://gfycat.com/madhugefulmar.gif)
