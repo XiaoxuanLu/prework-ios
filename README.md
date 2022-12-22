@@ -1,2 +1,2 @@
 # prework-ios
-![](https://gfycat.com/madhugefulmar.gif)
+![The gif of the app](https://gfycat.com/madhugefulmar.gif)
